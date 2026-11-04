@@ -12,4 +12,4 @@
 \\ 　　　　　  　　　 [click to be saved](fake)
 
 
-$\color{#00FFFF}{\textsf{later yeah? (>ᴗ•) !}}$
+$\color{#00FFFF}{\textsf{　　　later yeah? (>ᴗ•) !}}$
