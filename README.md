@@ -6,7 +6,8 @@
 　　　
 　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓒upseriespoints+++_&color=00FFFF)
 
->　　　<img width="699" height="322" alt="1000001498" src="https://github.com/user-attachments/assets/0f26a354-f46a-4935-95df-d2f8dd0f8b14" />
+<img width="720" height="406" alt="1000001770" src="https://github.com/user-attachments/assets/7dcfb52c-4ace-4d3e-8d65-5a83131c3cbc" />
+
 
 >
 \\ 　　　　　  　　　　[click to be saved](fake)
