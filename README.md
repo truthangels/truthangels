@@ -9,7 +9,7 @@
 
 
 >
-\\ 　　　　　  　　　[click to save joey](fake)p
+\\ 　　　　　  　　　[click to save joey](fake)
 
 
 $\color{#E05D44}{\textsf{      𝑻𝑬𝑨𝑴 𝑷𝑬𝑵𝑺𝑲𝑬 }}$
