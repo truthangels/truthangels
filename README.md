@@ -12,7 +12,7 @@
 \\ 　　　　　  　　　　[click to be saved](fake)
 
 
-$\color{#E05D44}{\textsf{      #team penske  }}$
+$\color{#E05D44}{\textsf{      team penske  }}$
 
 
  
