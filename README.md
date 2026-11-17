@@ -9,10 +9,10 @@
 
 
 >
-\\ 　　　　　  　　　[click to save joey](fake)
+\\ 　　　　　  　　　[click to save joey](fake)p
 
 
-$\color{#E05D44}{\textsf{      𝙏𝙚𝙖𝙢 𝙥𝙚𝙣𝙨𝙠𝙚  }}$
+$\color{#E05D44}{\textsf{      𝑻𝑬𝑨𝑴 𝑷𝑬𝑵𝑺𝑲𝑬 }}$
 
 
- 
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Inter&size=15&pause=1000&color=AB1414&background=E4AA2F00&center=true&width=435&lines=its+likeee++%E3%80%80+a+marriage!..;ya+%E3%80%80+gotta+fix+it)](https://git.io/typing-svg)
